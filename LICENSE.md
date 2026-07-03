@@ -1,4 +1,4 @@
-#  
+#  custom all star tower defense Script is the best all star tower defense Script, featuring auto-collect and invisibility. Safe and powerful for all
 
 
 
